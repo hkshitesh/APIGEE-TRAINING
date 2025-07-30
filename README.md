@@ -10,3 +10,7 @@ https://docs.google.com/spreadsheets/d/1zbu08ikn5NDgpQOjYzFwZ6YPNVWoYTdTd42s6bIG
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/2d591388-ad91-434f-91b1-146c7928e804" />
 
 
+## Google Meets Link
+
+https://meet.google.com/kms-mqaz-uyi
+
